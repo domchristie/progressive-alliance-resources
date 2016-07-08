@@ -9,6 +9,7 @@ Articles
 - [Green Party calls for progressive electoral alliance talks](https://www.greenparty.org.uk/news/2016/06/29/green-party-calls-for-progressive-electoral-alliance-talks/): news item from the Green Party website
 - [Labour can still survive, but only if it abandons hope of governing alone](https://www.theguardian.com/commentisfree/2016/jul/05/labour-survive-governing-alone-political-alliance-unity-british-left-power) by George Monbiot in The Guardian
 - [A budding progressive alliance wants to take back the Brexit heartlands](http://www.newstatesman.com/politics/staggers/2016/07/budding-progressive-alliance-wants-take-back-brexit-heartlands) by India Bourke in the New Statesman: a review of the Post-Brexit Alliance Building panel discussion (see videos below)
+- [What might Parliament look like now if we'd had a Progressive Alliance at the 2015 General Election?](http://www.stephenmcintosh.com/progressivealliance/)
 
 Videos
 ------
