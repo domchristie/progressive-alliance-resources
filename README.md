@@ -10,6 +10,7 @@ Articles
 - [Labour can still survive, but only if it abandons hope of governing alone](https://www.theguardian.com/commentisfree/2016/jul/05/labour-survive-governing-alone-political-alliance-unity-british-left-power) by George Monbiot in The Guardian
 - [A budding progressive alliance wants to take back the Brexit heartlands](http://www.newstatesman.com/politics/staggers/2016/07/budding-progressive-alliance-wants-take-back-brexit-heartlands) by India Bourke in the New Statesman: a review of the Post-Brexit Alliance Building panel discussion (see videos below)
 - [What might Parliament look like now if we'd had a Progressive Alliance at the 2015 General Election?](http://www.stephenmcintosh.com/progressivealliance/)
+- [3 things I’ve learnt about the possibility of a #ProgressiveAlliance](http://inpursuitofnuance.com/in-pursuit-of-nuance/3-things-ive-learnt-about-a-progressivealliance/) by Lucy V. Salek
 
 Videos
 ------
