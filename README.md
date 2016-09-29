@@ -11,6 +11,7 @@ Articles
 - [A budding progressive alliance wants to take back the Brexit heartlands](http://www.newstatesman.com/politics/staggers/2016/07/budding-progressive-alliance-wants-take-back-brexit-heartlands) by India Bourke in the New Statesman: a review of the Post-Brexit Alliance Building panel discussion (see videos below)
 - [What might Parliament look like now if we'd had a Progressive Alliance at the 2015 General Election?](http://www.stephenmcintosh.com/progressivealliance/)
 - [3 things I’ve learnt about the possibility of a #ProgressiveAlliance](http://inpursuitofnuance.com/in-pursuit-of-nuance/3-things-ive-learnt-about-a-progressivealliance/) by Lucy V. Salek
+- [2015 British General Election - Progressive Alliance What If?](http://web-matters.blogspot.it/2015/05/2015-british-general-election-progressive-alliance.html) by Andy Butland
 
 Videos
 ------
