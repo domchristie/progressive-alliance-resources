@@ -8,7 +8,7 @@ Organisations
 
 - [Compass](http://www.compassonline.org.uk/)
 - [People for a Progressive Alliance](https://www.facebook.com/PeopleforaProgressiveAlliance/)
-- Progressive Alliance UK ([Facebook](https://www.facebook.com/progallies/) / [Website](https://prog-allies.github.io/progressive-alliance/)
+- Progressive Alliance UK ([Facebook](https://www.facebook.com/progallies/) / [Website](https://prog-allies.github.io/progressive-alliance/))
 
 Articles
 --------
